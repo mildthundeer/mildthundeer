@@ -1,4 +1,4 @@
-### Hi there, fellow stranger (づ ◕‿◕ )づ
+### Hi there, fellow traveller (づ ◕‿◕ )づ
 
 <!--
 **mildthundeer/mildthundeer** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
